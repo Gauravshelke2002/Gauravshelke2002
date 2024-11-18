@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **gauravdattatrayshelke@gmail.com**
 
-- 📄 Know about my experiences [https://app.luminpdf.com/viewer/66f3a4453357d7cf7072e871](https://drive.google.com/file/d/1SX0a2LchkCrJrWEHaT7tc8tbtAP6QpiT/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1SX0a2LchkCrJrWEHaT7tc8tbtAP6QpiT/view?usp=drivesdk](https://drive.google.com/file/d/1SX0a2LchkCrJrWEHaT7tc8tbtAP6QpiT/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
